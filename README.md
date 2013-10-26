@@ -11,7 +11,9 @@ la mayoría por mala gestión financiera, por tener presupuestos poco realistas 
 
 El refrán dice "Nadie nace sabiendo", y esto puede aplicar a los emprendedores. Una mala planificación
 financiera, poco conocimiento de su mercado, no tener la orientación jurídica necesaria y "casarse" con una
-sola idea, figuran entre los errores que pueden provocar el cierre de un negocio.
+sola idea, figuran entre los errores que pueden provocar el cierre de un negocio. 
+
+www.gestiopolis.com/canales5/emp/ochentapy.htm
 
 "Emprendiendo", es una aplicación para dispositivos ANDROID y también disponemos un sitio web en línea,
 que entrena al emprendedor primero en los conceptos básicos para la creación de un negocio y luego le entregarña
